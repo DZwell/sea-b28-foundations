@@ -12,5 +12,5 @@ My website: [About me and the things I do](http://dzwellingmusic.com/)
 
 This is what I look like dressed all fancy:
 
-![A photo of me](https://www.facebook.com/BaumanPhotographers/photos/t.50610392/10152402647806166/?type=3&theater)
+![A photo of me](http://baumanphotographers.com/blog/images/2014/weddings/0525_Zwelling_Azose/007.jpg)
 
