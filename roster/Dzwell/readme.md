@@ -8,7 +8,7 @@ GitHub: [DZwell](https://github.com/DZwell)
 
 Facebook: [Check me out on the Facebook here](https://www.facebook.com/daniel.zwelling.5)
 
-My website: [Abuot me and things I do](http://dzwellingmusic.com/)
+My website: [About me and the things I do](http://dzwellingmusic.com/)
 
 This is what I look like dressed all fancy:
 
